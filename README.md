@@ -1,0 +1,2 @@
+# Visionarymomas
+: Venting to people that experience similar challenges/struggles eliminates the fear of being judged. They get the point and can empathize. Some of them are willing to share the effective tactics they deployed to manage similar challenges in their personal lives. Belonging to a community of like-minds, who understand one’s struggles, creates a safe haven to share and learn on different areas of intentional parenting. Focusing on moms of children within their formative age (0 to 12 years).
